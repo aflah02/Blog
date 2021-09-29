@@ -22,4 +22,4 @@ Essays I wrote for my Nations and her Narratives Class -
 
 - [Micro Conference Paper (What was Santokh Singh really saying? Reading between the Lines…)](https://aflah02.github.io/Blog/MicroConferencePaper)
 
-- [Micro Conference Paper Presentation (What was Santokh Singh really saying? Reading between the Lines…)](https://aflah02.github.io/Blog/MicroConference_Presentation)
+- [Micro Conference Paper Presentation (What was Santokh Singh really saying? Reading between the Lines…)](https://aflah02.github.io/Blog/MicroConference_Presentation.pdf)
