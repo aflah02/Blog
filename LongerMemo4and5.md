@@ -1,0 +1,9 @@
+# Longer Memo 4 and 5
+
+Which poem did you prefer more in the theme “Everydayness, Poverty, and Patriarchy” and why?
+
+Being light hearted all 3 poems were out of my comfort zone however if I have to choose one I prefer Father Returning Home. The other 2 poems are tragic however they are not something which I can empathize with as I have never been in such relationships and can only imagine what immense amount of horror or pain the person undergoes but the poem by Dilip Chitre is something which I can relate a bit to. There have been days when I have been working and haven’t had the time to even talk to my father as I used to as a kid. A strange regret lingers inside me but I am unable to vocalise it. The poem gives us the perspective of a father who has it much worse. He feels alienated and hopeless and lack of interaction pains him. This makes me question my own decisions and think about how I could have taken out time.
+
+What has been the most relatable aspect in reading Diaspora Literature?
+
+I haven’t ever travelled outside India however I’ve interacted with people who have. Their experiences have given me some interesting insights. A cousin of mine went to Ukraine for his studies. He recalls how tough it was to adapt to the culture and environment there. Sub Zero temperatures were the norm and language barrier was ever present. He spent his first year of college trying to learn their language to be able to communicate well and remembers how difficult it was. He also recalled how he longed to get good Indian cuisine but didn’t find any good restaurant . The ones he found tasted nothing like home. This just goes to show that no matter which part of the world people go to, they miss even the trivial peculiarities of their native places be it the washrooms in Squatter or the family and culture for Mrs.Sen.
